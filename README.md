@@ -1,5 +1,5 @@
 # 💫 About Me:
-🦾 I'm currently working on projects that could help my schoolmates! <br>🤓 I'm currently learning Java and for to destroy the nerves C++ for UE5 :# <br>🗣️Ask me about why I study programming by myself even if I will study it at University?! <br>🌠Fun fact! I tried to participate at the Cyber Battle of Estonia 2022... My team got 13 place...
+🦾 I'm currently learning at University! <br>🤓 I am passionate about the programming language Java!:# <br>🗣️Ask me about why I study programming by myself even if I will study it at University?! <br>🌠Fun fact! I tried to participate at the Cyber Battle of Estonia 2022... My team got 13 place...then next year 12 place...
 
 
 ## 🌐 Socials:
